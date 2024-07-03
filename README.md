@@ -1,0 +1,1 @@
+# microsoft-office-maturita-skip
